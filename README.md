@@ -11,7 +11,7 @@ The house will hold the five of us for $214.79 a night for 7 nights. This is a $
 
 ## Current Itenirary
 ###### Day 1: June 23, 2018
-  - Leave St. Louis at around 5am
+  - Leave St. Louis at around 5am
   - Stop to eat in _______ at around noon
   - Stop at the WalMart in Mobile and get food for the week
   - Arrive at our house, and follow check-in procedure. This will allo us to be in the house at approximately 6-7pm.
