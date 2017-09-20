@@ -38,5 +38,5 @@ Total Food Budget: $1230
   - Spend day at the beach
 ###### Day 7: June 29, 2018
   - Check out and leave at 6am
-  - Stop for lunch in ______ at around noon
+  - Stop for lunch in Jackson, TN at around 12:40pm
   - Arrive back in St. Louis
