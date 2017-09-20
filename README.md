@@ -27,12 +27,23 @@ Total Food Budget: $1230
   - Arrive at our house, and follow check-in procedure. This will allow us to be in the house at approximately 6-7pm.
   - Spend the evening relaxing.
 ###### Day 2: June 24, 2018
+  - Leave at around 9am, arrive at USS Alabama at around 9:45 - 10am.
   - Tour the Battleship USS Alabama and Submarine USS Drum
+  - Eat lunch at Panini Pete's
+  - Return to the house at around 4pm
+  - Spend evening on the beach
 ###### Day 3: June 25, 2018
+  - Head to Fort Gaines at around 9am. Arrive at 9:15am
   - Tour Fort Gaines
+  - Return to house at around 2, eat late lunch
+  - Spend rest of day on the beach
 ###### Day 4: June 26, 2018
+  - Leave for Estuarium at around 10am, arrive at around 10:15am
   - Tour Estuarium
+  - Return to house at around 3-4pm
+  - Spend evening on beach
 ###### Day 5: June 27, 2018
+  - Leave for Duck Tour at around 8am. Arrive at approximately 9.
   - Duck Tour of Mobile, Alabama
 ###### Day 6: June 28, 2018
   - Spend day at the beach
