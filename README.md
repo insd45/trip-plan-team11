@@ -16,7 +16,7 @@ The breakfast budget per person is $7 a day and $46 for the week.
 The lunch budget per person is $10 a day and $70 for the week.
 The dinner budget per person is $15 a day and $90 for the week.
 The total of the week per person is $206.
-The total for everyone is $1030 plus an additional $200 for alcoholic beverages and snacks.
+The total for everyone is $1030 plus an additional $200 for alcoholic beverages (For our 21+ members) and snacks.
 Total Food Budget: $1230
 
 ## Current Itinerary
