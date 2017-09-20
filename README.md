@@ -18,7 +18,7 @@ Total Food Budget: $1230
 ## Current Itinerary
 ###### Day 1: June 23, 2018
   - Leave St. Louis at around 5am
-  - Stop to eat in _______ at around noon
+  - Stop to eat in Meridian, MS at around 1pm
   - Stop at the WalMart in Mobile and get food for the week
   - Arrive at our house, and follow check-in procedure. This will allow us to be in the house at approximately 6-7pm.
   - Spend the evening relaxing.
