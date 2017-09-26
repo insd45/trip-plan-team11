@@ -55,3 +55,8 @@ Total Food Budget: $875
   - Check out and leave at 6am
   - Stop for lunch in Jackson, TN at around 12:40pm
   - Arrive back in St. Louis
+  
+## Total Budget
+Our designated budget was $3400.
+1947 + 251 + 315 + 875 = 3388.
+Considering how many things were rounded up in anticipation of issues or emergencies (anticipating gas prices to be $3.30 a gallon, potential oil changes, anticipating expensive meals), saying that we are $12 under budget is likely unrealistic. We are more likely 50-100 dollars under budget.
