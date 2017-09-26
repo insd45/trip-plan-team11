@@ -5,8 +5,8 @@ The house will hold the five of us for $214.79 a night for 7 nights. This is a $
 
 ## Transportation Details
 The distance between Columbia and Dauphin Island is approximately 678 miles as well as about 51 miles to accommodate driving on the island. This bring us to a total of 1407 miles (788 to and from) + 51. 
-If gas prices averages at 3.30 x 1407 miles / 25 mpg (suv with good gas mileage) = $186
-The total for an oil change scheduled after our arrival will be approximaltely $65.
+If gas prices averages at 3.30 x 1407 miles / 25 mpg (suv with good gas mileage) = $186.
+The total for an oil change scheduled after our arrival will be approximately $65.
 This brings the total of our transportation costs = $251.00
 
 ## Activities Details
