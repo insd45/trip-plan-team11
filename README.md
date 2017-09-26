@@ -49,6 +49,7 @@ Total Food Budget: $875
 ###### Day 5: June 27, 2018
   - Leave for Duck Tour at around 8am. Arrive at approximately 9.
   - Duck Tour of Mobile, Alabama
+  - Return to house at around 4pm
 ###### Day 6: June 28, 2018
   - Spend day at the beach
 ###### Day 7: June 29, 2018
